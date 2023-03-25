@@ -1,1 +1,2 @@
-# latihan1
+# Dean Aura Nabilla
+### Biodata Diri
